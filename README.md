@@ -6,7 +6,7 @@
 </h1>
 
 
-https://telegra.ph/file/1d42046842bad75371aad.ജെപിജി
+https://telegra.ph/file/1d42046842bad75371aad.jpg
 
 
 <details>
